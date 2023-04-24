@@ -1,1 +1,1 @@
-# Takeover by manish nemiwal
+# Takeover by manish
